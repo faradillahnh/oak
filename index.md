@@ -48,7 +48,7 @@ There's huge different between customer experience and customer service.
 Customer Experience can be call center, mobile (if the business has mobile app or can be another app, depend on the enterprise), Social media, Email, etc.
 
 ### Customer Experiences steps
-<ol
+<ol>
   <li>Create Customer Journey</li>
   <li>Define Touch point</li>
   <li>Customer Research</li>
