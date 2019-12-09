@@ -25,3 +25,20 @@ He's
 and the last
 
 ### 4. Bayu Ferdian
+
+=======================================================
+## Here's what they performed yesterday, I'll start from the first speaker
+
+## Customer Experience (CX)
+
+### Spoken by : Misbahul Munir
+
+![My image Name](/assets/images/ui-ux-cx-bx.png)
+
+based on the picture above, user interface and user experience is placed inside of customer experience. It means that UI and UX are part of customer experience.
+Why we have differences between customer and user ? because they have siginificant differences.
+
+<br/>
+### Customer : performing transaction
+<br/>
+### User : People who interact with our product. User is our customer canditate, so we have opportunity to convert them to be our loyal customer.
