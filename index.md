@@ -12,7 +12,7 @@
 1. <a href="https://oak.my.id/I-like-green-and-why">I like green and why</a>
 
 ## Daily Story
-1. What Allah try to tell me when He gives me this job
+1. What Allah tries to tell me when He gives me this job
 
 ## User Experience
 1. <a href="https://oak.my.id/customer-experience">Customer Experience</a>
