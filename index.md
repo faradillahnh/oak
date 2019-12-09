@@ -8,6 +8,9 @@
 
 ## What I learn today about Islam
 
+## My self
+1. I like green and why
+
 ## User Experience
 1. <a href="https://oak.my.id/customer-experience">Customer Experience</a>
 
@@ -15,8 +18,6 @@
 ## Design Thinking
 
 ## Usability
-
-## Daily Story
 
 ## Business
 
