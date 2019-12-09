@@ -42,3 +42,16 @@ Why we have differences between customer and user ? because they have siginifica
 ### Customer : performing transaction
 <br/>
 ### User : People who interact with our product. User is our customer canditate, so we have opportunity to convert them to be our loyal customer.
+
+There's huge different between customer experience and customer service.
+
+Customer Experience can be call center, mobile (if the business has mobile app or can be another app, depend on the enterprise), Social media, Email, etc.
+
+### Customer Experiences steps
+<ol
+  <li>Create Customer Journey</li>
+  <li>Define Touch point</li>
+  <li>Customer Research</li>
+  <li>Great Strategy</li>
+  <li>Interation - because you always get different result so that's why iteration matters>/li>
+</ol
