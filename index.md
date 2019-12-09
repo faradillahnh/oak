@@ -10,7 +10,7 @@
 
 ## My self
 1. <a href="https://oak.my.id/I-like-green-and-why">I like green and why</a>
-2. Why I decided to purchased cheapest domain
+2. Why I decided to purchase cheapest domain
 
 ## Daily Story
 1. What Allah tries to tell me when He gives me this job
