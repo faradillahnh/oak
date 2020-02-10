@@ -28,3 +28,4 @@
 ## Marketing
 
 ## Startup
+1. <a href="https://oak.my.id/apa-itu-business-model-canvas.md">Apa itu Business Model Canvas ?</a>
