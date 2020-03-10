@@ -1,4 +1,4 @@
-# Seni Project Management
+# Project Management ?
 
 Overview dulu yah, dari jaman dulu sampek sekarang, penggunaan aplikasi udah jadi salah satu lifestyle dikehidupan kita sehari-hari. Hampir tiap hari bahkan tiap waktu kita make aplikasi, entah buat seneng-seneng aja atau bahkan bantu pekerjaan kita.
 Makin tingginya kebutuhan akan aplikasi, berbanding lurus juga sama makin tingginya permintaan pembuatan aplikasi. Tingkat permintaan aplikasi membeludak, makanya path pembuatan aplikasi juga makin dibutuhin biar pada saat proses pembuatan makin mudah dan cepet.
