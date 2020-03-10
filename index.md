@@ -31,4 +31,4 @@
 1. <a href="https://oak.my.id/apa-itu-business-model-canvas.md">Apa itu Business Model Canvas ?</a>
 
 ## Project Management
-1. <a href="https://oak.my.id/Seni-Project-Management.md">Project Management ?</a>
+1. <a href="https://oak.my.id/Project-Management.md">Project Management ?</a>
