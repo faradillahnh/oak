@@ -27,4 +27,4 @@ Masih ada 1 task lagi sebenernya yang dilakuin sama PM, yaitu reporting
 Ada banyak banget bidang pekerjaan yang butuh project management, karna kebanyakan bidang usaha sekarang udah bertransformasi ke tech. 
 Misalnya nih, Software Product Companies, startup-startup yang sekarang menjamur, terus juga companies yang based on technology
 
-Lanjut di postingan selanjutnya ya
+Lanjut di postingan selanjutnya ya, inshaAllah bahas tentang 3 bagian utama project management tadi.
