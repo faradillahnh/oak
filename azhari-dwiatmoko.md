@@ -4,3 +4,5 @@
 but thanks for lighting my life, for saying "awakmu kan gak sholat" I did muhasabah after that.
 
 inshaAllah I wanna be your backup for always if Allah gives you for me.
+
+A bunch of thank for you
