@@ -6,6 +6,9 @@
 3. What I want in life
 4. My regret but also my life lesson and I'm so thankfull for having those
 
+## Bahasa Arab
+1. 
+
 ## What I learn today about Islam
 
 ## My self
