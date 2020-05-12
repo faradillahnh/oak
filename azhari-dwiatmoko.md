@@ -14,4 +14,4 @@ It's hard but worth it. :)
 
 A bunch of thank for you, I'll keep waiting inshaAllah
 
-See you, on the day when I can have conversation all the day long as long I want. :D
+See you, on the day when we both free to have conversation all the day long as long we want. :D
