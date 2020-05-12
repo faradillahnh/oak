@@ -21,3 +21,7 @@ As, kamu tau nggak dulu waktu di kelas, aku ngomong kata "bug" sama Bunga + Hadi
 As, aku ngrasa nggak percaya diri lagi sekarang.
 
 As, dulu waktu kita abis liburan sekolah, terus hari pertama masuk abis libur, kamu agak iteman, terus anak-anak bilang kamu abis dari pantai, kamu abis dari pantai kah?
+
+As, gimana caranya setting halaman ini aja biar cuma kamu yang bisa liat ? github pages nggak bisa di private. :(
+
+AS, maaf 12/05/2020
