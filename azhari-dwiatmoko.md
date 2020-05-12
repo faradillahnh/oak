@@ -5,7 +5,7 @@ but thanks for lighting my life, for saying "something" I did muhasabah after th
 
 inshaAllah I wanna be your backup for always if only Allah gives you for me. I hope Allah give you for me :) I want it so bad, really bad.
 
-I try hard to do what we should do, It's hard, really hard, be prepare to repay. I know that you know what's really hard for me to do. But anyways, thanks for forcing me to do that. Repay for it !!
+I try hard to do what we should do, It's hard, really hard, be prepare to repay. I know that you know what's really hard for me to do. But anyways, thanks for forcing me to do all the good things. Repay for it !!
 
 Sorry I did something bad on the past.
 
