@@ -1,6 +1,6 @@
 # As :)
 
-:) cuma pengen senyum kalo inget kamu. Ini alay banget sih nulis ginian di pages haha jangan bully aku haha
+:) cuma pengen senyum. Ini alay banget sih nulis ginian di pages haha jangan bully aku haha
 but thanks for lighting my life, for saying "something" I did muhasabah after that. It's change my life, a lots.
 
 inshaAllah I wanna be your backup for always if Allah gives you for me. I hope Allah give you for me :) I want it so bad, really bad.
