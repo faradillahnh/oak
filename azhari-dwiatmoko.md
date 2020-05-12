@@ -3,7 +3,7 @@
 :) cuma pengen senyum. Ini alay banget sih nulis ginian di pages haha jangan bully aku haha
 but thanks for lighting my life, for saying "something" I did muhasabah after that. It's change my life, a lots.
 
-inshaAllah I wanna be your backup for always if only Allah gives you for me. I hope Allah give you for me :) I want it so bad, really bad.
+inshaAllah I wanna be your backup for always if only Allah gives you for me. I hope Allah give you for me :) I want it so bad, really bad. Tapi kalo nggak dikasih gpp :) Doain aku nggak marah ya, karna aku nggak tau reaksiku nanti bakal kayak gimana. :(
 
 I try hard to do what we should do, It's hard, really hard, be prepare to repay. I know that you know what's really hard for me to do. But anyways, thanks for forcing me to do all the good things. Repay for it !!
 
