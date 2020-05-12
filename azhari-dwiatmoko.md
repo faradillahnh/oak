@@ -19,3 +19,5 @@ See you, on the day when we both r free to have conversation all the day long as
 As, kamu tau nggak dulu waktu di kelas, aku ngomong kata "bug" sama Bunga + Hadi dengan pronunciation "b u g" terus kamu dari belakang bilang /bʌɡ/ serius itu aku malu banget sama kamu, rasanya aku nggak mau ngobrol lagi sama kamu haha saking malunya, tapi nggak keliatan kan. As, maaf aku banyak nglakuin hal bodoh dulu, aku nulis ini juga hal bodoh, harusnya aku simpen sendiri.
 
 As, aku ngrasa nggak percaya diri lagi sekarang.
+
+As, dulu waktu kita abis liburan sekolah, terus hari pertama masuk abis libur, kamu agak iteman, terus anak-anak bilang kamu abis dari pantai, kamu abis dari pantai kah?
