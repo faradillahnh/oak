@@ -1,4 +1,4 @@
-## Keutamaan Belajar Bahasa Arab
+# Keutamaan Belajar Bahasa Arab
 
 Bismillah,
 Dalam halaman ini berisi rangkuman kajian dari internet yang bertema "Keutamaan Belajar Bahasa Arab" atau kurang lebih
