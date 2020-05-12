@@ -12,6 +12,6 @@ Sorry I did something bad on the past.
 As, I'll try my best in order to be the best version of me, so you won't regret oneday :) semangat :)
 It's hard but worth it. :)
 
-A bunch of thank for you
+A bunch of thank for you, I'll keep waiting inshaAllah
 
 See you, on the day when I can have conversation all the day long as long I want. :D
