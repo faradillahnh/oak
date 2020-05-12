@@ -7,7 +7,7 @@
 4. My regret but also my life lesson and I'm so thankfull for having those
 
 ## Bahasa Arab
-1. 
+1. <a href="https://oak.my.id/keutamaan-belajar-bahasa-arab">Keutamaan Belajar Bahasa Arab</a>
 
 ## What I learn today about Islam
 
