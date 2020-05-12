@@ -9,7 +9,7 @@ I try hard to do what we should do, It's hard, really hard, be prepare to repay.
 
 Sorry I did something bad on the past.
 
-As, I'll try my best in order to be the best version of me, so you won't regret oneday :) semangat :)
+As, I'll try my best in order to be the best version of me, so you are :) semangat :)
 It's hard but worth it. :)
 
 A bunch of thank for you, I'll keep waiting inshaAllah
