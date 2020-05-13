@@ -14,7 +14,7 @@
 ## My self
 1. <a href="https://oak.my.id/I-like-green-and-why">I like green and why</a>
 2. Why I decided to purchase cheapest domain
-3. <a href="https://oak.my.id/azhari-dwiatmoko">Azhari Dwiatmoko :)</a>
+3. <a href="https://oak.my.id/azhari-dwiatmoko">Bang Mytic, masih mytic sekarang ? Kapan berhenti main game ? aku nungguin :)</a>
 
 ## Daily Story
 1. What Allah tries to tell me when He gives me this job
