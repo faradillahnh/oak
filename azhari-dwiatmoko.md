@@ -20,7 +20,7 @@ As, kamu tau nggak dulu waktu di kelas, aku ngomong kata "bug" sama Bunga + Hadi
 
 As, aku ngrasa nggak percaya diri lagi sekarang.
 
-As, dulu waktu kita abis liburan sekolah, terus hari pertama masuk abis libur, kamu agak iteman, terus anak-anak bilang kamu abis dari pantai, kamu abis dari pantai kah?
+As, dulu waktu kita abis liburan sekolah, terus hari pertama masuk abis libur, kamu agak iteman, terus anak-anak bilang kamu abis dari pantai, dulu aku pengen nanya ke kamu "kamu abis dari pantai kah?" tapi sampai aku ngetik ini, aku nggak pernah nanya ke kamu, udah lama juga 5 tahun lebih sejak kita lulus SMK
 
 As, gimana caranya setting halaman ini aja biar cuma kamu yang bisa liat ? github pages nggak bisa di private. :(
 
