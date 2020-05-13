@@ -25,4 +25,4 @@ As, dulu waktu kita abis liburan sekolah, terus hari pertama masuk abis libur, k
 As, gimana caranya setting halaman ini aja biar cuma kamu yang bisa liat ? github pages nggak bisa di private. :(
 
 #### AS, maaf 12/05/2020
-#### Aas, aku feeling meh lagi :( tapi agak dikit up hehe aku alay ya nulis ginian btw hari ini aku jajan terus, di kos nggak ada orang :( kamu bilang kalo aku takut boleh telfon kan, tapi aku gak mau telfon, then you see how I can survive 13/052020
+#### Aas, aku feeling meh lagi :( tapi agak dikit up hehe aku alay ya nulis ginian btw hari ini aku jajan terus, di kos nggak ada orang :( udah pulang semua 13/05/2020
