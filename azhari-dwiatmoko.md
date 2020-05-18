@@ -27,3 +27,4 @@ As, gimana caranya setting halaman ini aja biar cuma kamu yang bisa liat ? githu
 #### AS, maaf 12/05/2020
 #### Aas, aku feeling meh lagi :( tapi agak dikit up hehe aku alay ya nulis ginian btw hari ini aku jajan terus, di kos nggak ada orang :( udah pulang semua. As, aku lagi makan ayam bakar, enak alhamdulillah, kamu suka kan hehe mudah-mudahan aku bisa masakin ayam bakar yang enak juga buat kamu, ntar ayam nya beli di pasar aja, kamu nggak tega nyembelih ayam kan :( aku sedih, as, aku pengen hapus pages yang ini karna kayaknya Allah nggak suka aku nulis ini, tapi aku pengen ngobrol sama kamu, kamu baca ini kan  13/05/2020
 #### As, aku bahagia bareng kamu :) 15/5/2020
+#### Bye As 18/05/2020
