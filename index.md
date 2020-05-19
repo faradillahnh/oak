@@ -32,7 +32,7 @@
 20. Apa Ada Allah dalam Hatimu ?
 21. Niatkan Semuanya Karena Allah
 22. Allah Sebaik-baiknya Penolong
-23. Curahkan Semuanya Pada Allah
+23. Curahkan dan Mintakan Semuanya Pada Allah
 
 
 ## My self
