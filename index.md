@@ -27,12 +27,16 @@
 15. Bersyukurlah Karena Allah Masih Memberimu Waktu untuk Taubat
 16. Cinta Allah
 17. Jadikan Allah Satu-satunya Tempat Bergantungmu
+18. Arti Wanita dalam Islam
+19. Kasih Sayang Allah pada Wanita
+20. Apa Ada Allah dalam Hatimu ?
+21. 
 
 
 ## My self
 1. <a href="https://oak.my.id/I-like-green-and-why">I like green and why</a>
 2. Why I decided to purchase cheapest domain
-3. <a href="https://oak.my.id/azhari-dwiatmoko">Bang Mytic, masih mytic sekarang ? Kapan berhenti main game ? aku nungguin :)</a>
+3. <a href="https://oak.my.id/azhari-dwiatmoko">Kamu</a>
 
 ## Daily Story
 1. What Allah tries to tell me when He gives me this job
