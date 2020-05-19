@@ -24,8 +24,13 @@ As, dulu waktu kita abis liburan sekolah, terus hari pertama masuk abis libur, k
 
 As, gimana caranya setting halaman ini aja biar cuma kamu yang bisa liat ? github pages nggak bisa di private. :(
 
-#### 12/05/2020 As, maaf 
-#### 13/05/2020 Aas, aku feeling meh lagi :( tapi agak dikit up hehe aku alay ya nulis ginian btw hari ini aku jajan terus, di kos nggak ada orang :( udah pulang semua. As, aku lagi makan ayam bakar, enak alhamdulillah, kamu suka kan hehe mudah-mudahan aku bisa masakin ayam bakar yang enak juga buat kamu, ntar ayam nya beli di pasar aja, kamu nggak tega nyembelih ayam kan :( aku sedih, as, aku pengen hapus pages yang ini karna kayaknya Allah nggak suka aku nulis ini, tapi aku pengen ngobrol sama kamu, kamu baca ini kan  
-#### 15/5/2020 As, aku bahagia bareng kamu :) 
-#### 18/05/2020 Bye As 
-#### 19/05/2020 :) Semoga Allah memberimu dan memberiku yang terbaik, pasti Allah kasih yang terbaik, Aku pergi karna sayang kamu. Aku nggak perlu ngomong itu kan, kamu pasti tau itu
+#### 12/05/2020 
+##### As, maaf 
+#### 13/05/2020
+##### Aas, aku feeling meh lagi :( tapi agak dikit up hehe aku alay ya nulis ginian btw hari ini aku jajan terus, di kos nggak ada orang :( udah pulang semua. As, aku lagi makan ayam bakar, enak alhamdulillah, kamu suka kan hehe mudah-mudahan aku bisa masakin ayam bakar yang enak juga buat kamu, ntar ayam nya beli di pasar aja, kamu nggak tega nyembelih ayam kan :( aku sedih, as, aku pengen hapus pages yang ini karna kayaknya Allah nggak suka aku nulis ini, tapi aku pengen ngobrol sama kamu, kamu baca ini kan  
+#### 15/5/2020 
+##### As, aku bahagia bareng kamu :) 
+#### 18/05/2020 
+##### Bye As 
+#### 19/05/2020 
+##### :) Semoga Allah memberimu dan memberiku yang terbaik, pasti Allah kasih yang terbaik, Aku pergi karna sayang kamu. Aku nggak perlu ngomong itu kan, kamu pasti tau itu
