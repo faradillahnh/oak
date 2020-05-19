@@ -22,7 +22,7 @@
 10. Allah Sebaik-baik Perencana
 11. Allah Mengenalmu Lebih Dari Kamu Mengenal Dirimu Sendiri
 12. Hidup Untuk Allah dan Karena Allah
-13. Manisnya Iman
+13. Riski Manisnya Iman
 14. Berdoa dan Berusahalah Agar Allah Beri Manisnya Iman Untukmu
 15. Bersyukurlah Karena Allah Masih Memberimu Waktu untuk Taubat
 16. Cinta Allah
