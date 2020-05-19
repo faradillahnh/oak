@@ -26,12 +26,13 @@
 14. Berdoa dan Berusahalah Agar Allah Beri Manisnya Iman Untukmu
 15. Bersyukurlah Karena Allah Masih Memberimu Waktu untuk Taubat
 16. Cinta Allah
-17. Jadikan Allah Satu-satunya Tempat Bergantungmu
+17. Allah Sebaik-baik Tempat Bergantung
 18. Arti Wanita dalam Islam
 19. Kasih Sayang Allah pada Wanita
 20. Apa Ada Allah dalam Hatimu ?
 21. Niatkan Semuanya Karena Allah
 22. Allah Sebaik-baiknya Penolong
+23. Curahkan Semuanya Pada Allah
 
 
 ## My self
