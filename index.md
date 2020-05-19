@@ -36,11 +36,17 @@
 24. Betapa Besar Kasih Sayang yang Allah Selipkan Pada Waktu yang Allah Beri
 25. Waktu, Apa Itu?
 26. Kenali Apa yang Allah Suka dan Cintai
+27. Allah Bilang, Kamu Tidak Akan Sesat dan Celaka Bila Ikut Petunjuk Allah
+28. Allah yang Memberi Hidayah
+29. Kata Allah, Bila Kamu Sedih
 
-## My self
+## Tentang Aku dan Kamu
 1. <a href="https://oak.my.id/I-like-green-and-why">I like green and why</a>
 2. Why I decided to purchase cheapest domain
 3. <a target="_blank" href="https://oak.my.id/azhari-dwiatmoko">Kamu, orang yang aku berharap Allah beri untukku</a>
+4. Untukmu, Jangan Jauh Dari Allah, Nanti Aku Pergi, Aku Nggak Mau Pergi
+5. Diriku, Perhatikan dan Lakukan Kewajibanmu
+6. Belum Tentu Kamu Masih Hidup Besok
 
 ## Daily Story
 1. What Allah tries to tell me when He gives me this job
