@@ -36,7 +36,7 @@
 ## My self
 1. <a href="https://oak.my.id/I-like-green-and-why">I like green and why</a>
 2. Why I decided to purchase cheapest domain
-3. <a href="https://oak.my.id/azhari-dwiatmoko">Kamu</a>
+3. <a href="https://oak.my.id/azhari-dwiatmoko">Kamu, orang yang aku berharap Allah beri untukku</a>
 
 ## Daily Story
 1. What Allah tries to tell me when He gives me this job
