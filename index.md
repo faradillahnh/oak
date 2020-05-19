@@ -35,6 +35,7 @@
 23. Curahkan dan Mintakan Semuanya Pada Allah
 24. Betapa Besar Kasih Sayang yang Allah Selipkan Pada Waktu yang Allah Beri
 25. Waktu, Apa Itu?
+26. Kenali Apa yang Allah Suka dan Cintai
 
 ## My self
 1. <a href="https://oak.my.id/I-like-green-and-why">I like green and why</a>
