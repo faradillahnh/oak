@@ -39,6 +39,7 @@
 27. Allah Bilang, Kamu Tidak Akan Sesat dan Celaka Bila Ikut Petunjuk Allah
 28. Allah yang Memberi Hidayah
 29. Kata Allah, Bila Kamu Sedih
+30. Bila Kekayaan Bukan Kesuksesan dan Kemiskinan Bukan Kegagalan, Lalu Sukses dan Gagal itu Apa ?
 
 ## Tentang Aku dan Kamu
 1. <a href="https://oak.my.id/I-like-green-and-why">I like green and why</a>
@@ -47,6 +48,9 @@
 4. Untukmu, Jangan Jauh Dari Allah, Nanti Aku Pergi, Aku Nggak Mau Pergi
 5. Diriku, Perhatikan dan Lakukan Kewajibanmu
 6. Belum Tentu Kamu Masih Hidup Besok
+
+## Bahasa Inggris
+1. Grammar itu Apa ?
 
 ## Daily Story
 1. What Allah tries to tell me when He gives me this job
