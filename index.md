@@ -14,10 +14,19 @@
 2. Berdoalah Agar Allah Tambahkan Ilmumu
 3. Mintalah Agar Allah Tambah Cintamu Pada Allah, Rosul dan Al-Qur'an
 4. Kita Sangat Bergantung Pada Allah
-5. Allah Sayang Hamba-Nya, Kamu
+5. Allah Menyayangimu, Lebih Dari Dirimu Sendiri, Lebih Dari Siapapun
 6. Jadilah Baik Karena Allah
 7. Ingat Allah
 8. Sebaik-baiknya Suri Tauladan Ada Pada Rosul
+9. Semua Perintah Allah itu Untuk Kebaikanmu
+10. Allah Sebaik-baik Perencana
+11. Allah Mengenalmu Lebih Dari Kamu Mengenal Dirimu Sendiri
+12. Hidup Untuk Allah dan Karena Allah
+13. Manisnya Iman
+14. Berdoa dan Berusahalah Agar Allah Beri Manisnya Iman Untukmu
+15. Bersyukurlah Karena Allah Masih Memberimu Waktu untuk Taubat
+16. Cinta Allah
+17. Jadikan Allah Satu-satunya Tempat Bergantungmu
 
 
 ## My self
