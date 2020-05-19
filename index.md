@@ -33,7 +33,8 @@
 21. Niatkan Semuanya Karena Allah
 22. Allah Sebaik-baiknya Penolong
 23. Curahkan dan Mintakan Semuanya Pada Allah
-
+24. Betapa Besar Kasih Sayang yang Allah Selipkan Pada Waktu yang Allah Beri
+25. Waktu, Apa Itu?
 
 ## My self
 1. <a href="https://oak.my.id/I-like-green-and-why">I like green and why</a>
