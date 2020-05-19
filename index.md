@@ -30,7 +30,8 @@
 18. Arti Wanita dalam Islam
 19. Kasih Sayang Allah pada Wanita
 20. Apa Ada Allah dalam Hatimu ?
-21. 
+21. Niatkan Semuanya Karena Allah
+22. Allah Sebaik-baiknya Penolong
 
 
 ## My self
