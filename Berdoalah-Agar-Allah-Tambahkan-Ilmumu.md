@@ -13,3 +13,5 @@
 #### Jadi intinya belajarlah ilmu agama biar kamu tau yang benar, biar kamu nggak sesat, biar kamu nggak nyelakain dirimu sendiri, belajarlah karna kamu butuh banget itu, belajarlah biar kamu nggak termasuk orang-orang yang rugi, intinya belajarlah karna Allah perintahkan itu
 
 #### Tau nggak ? Allah bakal mudahin jalan kita menuju surga kalo kita belajar Agama Allah. :) Mau masuk surga kan ?
+
+#### Semua hal asalnya dari Allah kan ? ilmu juga gitu. Berdoa, minta ke Allah biar Allah bukakan ilmu-Nya buat kamu. Jangan lupa minta ke Allah ya
