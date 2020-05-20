@@ -40,6 +40,7 @@
 28. Allah yang Memberi Hidayah
 29. Kata Allah, Bila Kamu Sedih
 30. Bila Kekayaan Bukan Kesuksesan dan Kemiskinan Bukan Kegagalan, Lalu Sukses dan Gagal itu Apa ?
+31. <a href="https://oak.my.id/dilupakan">Dilupakan</a>
 
 ## Tentang Aku dan Kamu
 1. <a href="https://oak.my.id/I-like-green-and-why">I like green and why</a>
