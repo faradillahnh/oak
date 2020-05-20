@@ -11,7 +11,7 @@
 
 ## What I learn today about Islam
 1. Sayangi Kedua Orang Tuamu Karena Allah Perintahkan
-2. Berdoalah Agar Allah Tambahkan Ilmumu
+2. <a href="https://oak.my.id/Berdoalah-Agar-Allah-Tambahkan-Ilmumu">Berdoalah Agar Allah Tambahkan Ilmumu</a>
 3. Mintalah Agar Allah Tambah Cintamu Pada Allah, Rosul dan Al-Qur'an
 4. Kita Sangat Bergantung Pada Allah
 5. Allah Menyayangimu, Lebih Dari Dirimu Sendiri, Lebih Dari Siapapun
