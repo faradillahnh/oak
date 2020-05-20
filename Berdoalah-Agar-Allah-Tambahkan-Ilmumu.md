@@ -8,7 +8,7 @@
 #### Mudah-mudahan Allah meridhoi tulisan ini
 
 #### Aku pernah dikondisi benci banget sama Allah, benci sama keadaan, benci sama lingkungan, benci sama orang-orang, benci sama diri sendiri, benci semuanya pokoknya, pikiranku negative banget, tapi yang paling aku benci itu Allah karna Allah nyiptain aku jadi manusia dan aku harus ada disini jalani semua ini.
-#### Satu hal yang aku pelajari, semua pikiran itu muncul, semua kesimpulan itu muncul yang akhirnya ngancurin diriku sendiri, itu semua ada karna aku sendiri, aku yang tau apa-apa, aku yang bodoh. Karna aku yang nggak tau yang sebenernya kayak gimana. Karna aku nggak mau belajar dan nyari tau.
+#### Satu hal yang aku pelajari, semua pikiran itu muncul, semua kesimpulan itu muncul yang akhirnya ngancurin diriku sendiri, itu semua  karna aku sendiri, aku yang nggak tau apa-apa, aku yang bodoh. Karna aku nggak tau yang sebenernya kayak gimana. Karna aku nggak mau belajar dan nyari tau.
 #### Jadi karna kebodohanku, aku jadi mikir negative tentang Allah, padahal setelah aku belajar dan nyari tau, nyoba deketin diri ke Allah. Semua hal negative tadi itu nggak bener.
 #### Jadi intinya belajarlah ilmu agama biar kamu tau yang benar, biar kamu nggak sesat, biar kamu nggak nyelakain dirimu sendiri, belajarlah karna kamu butuh banget itu, belajarlah biar kamu nggak termasuk orang-orang yang rugi, intinya belajarlah karna Allah perintahkan itu
 
