@@ -45,7 +45,7 @@
 ## Tentang Aku dan Kamu
 1. <a href="https://oak.my.id/I-like-green-and-why">I like green and why</a>
 2. Why I decided to purchase cheapest domain
-3. <a target="_blank" href="https://oak.my.id/azhari-dwiatmoko">Kamu, orang yang aku berharap Allah beri untukku</a>
+3. <a target="_blank" href="https://oak.my.id/azhari-dwiatmoko">Maafin aku</a>
 4. Untukmu, Jangan Jauh Dari Allah, Nanti Aku Pergi, Aku Nggak Mau Pergi
 5. Diriku, Perhatikan dan Lakukan Kewajibanmu
 6. Belum Tentu Kamu Masih Hidup Besok
