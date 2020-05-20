@@ -16,7 +16,21 @@
 
 #### Ya intinya itu gambaran dari gimana rasanya jadi dilupakan, tapi bukan itu inti dari hal yang mau aku bagi di artikel ini.
 
-#### Kita manusia kan, kecuali kalo kamu bukan manusia yang percaya nanti bakal dihisab dihari akhir, mending nggak usah baca ini. 
-Soalnya pondasi awal biar artikel ini bisa dibaca dengan damai dan diterima dengan ikhlas ya kepercayaan bahwa nanti kita semua bakal sampai disaat hari kiamat/hari akhir tiba.
+#### Kita manusia kan, kecuali kalo kamu bukan manusia yang percaya nanti bakal dihisab dihari akhir, mending nggak usah baca ini. Soalnya pondasi awal biar artikel ini bisa dibaca dengan damai dan diterima dengan ikhlas ya kepercayaan bahwa nanti kita semua bakal sampai disaat hari kiamat/hari akhir tiba.
 
-####
+#### قَالَ اهۡبِطَا مِنۡهَا جَمِيۡعًا‌ۢ بَعۡضُكُمۡ لِبَعۡضٍ عَدُوٌّ‌ ۚ فَاِمَّا يَاۡتِيَنَّكُمۡ مِّنِّىۡ هُدًى فَمَنِ اتَّبَعَ هُدَاىَ فَلَا يَضِلُّ وَلَا يَشۡقٰى
+#### Dia (Allah) berfirman, “Turunlah kamu berdua dari surga bersama-sama, sebagian kamu menjadi musuh bagi sebagian yang lain. Jika datang kepadamu petunjuk dari-Ku, maka (ketahuilah) barang siapa mengikuti petunjuk-Ku, dia tidak akan sesat dan tidak akan celaka. (QS. 20:123)
+
+#### وَمَنۡ اَعۡرَضَ عَنۡ ذِكۡرِىۡ فَاِنَّ لَـهٗ مَعِيۡشَةً ضَنۡكًا وَّنَحۡشُرُهٗ يَوۡمَ الۡقِيٰمَةِ اَعۡمٰى‏
+#### Dan barang siapa berpaling dari peringatan-Ku, maka sungguh, dia akan menjalani kehidupan yang sempit, dan Kami akan mengumpulkannya pada hari Kiamat dalam keadaan buta. (QS. 20:124)
+
+#### قَالَ رَبِّ لِمَ حَشَرۡتَنِىۡۤ اَعۡمٰى وَقَدۡ كُنۡتُ بَصِيۡرًا
+#### Dia berkata, “Ya Tuhanku, mengapa Engkau kumpulkan aku dalam keadaan buta, padahal dahulu aku dapat melihat? (QS. 20:125)
+
+#### قَالَ كَذٰلِكَ اَتَـتۡكَ اٰيٰتُنَا فَنَسِيۡتَهَا‌ۚ وَكَذٰلِكَ الۡيَوۡمَ تُنۡسٰى
+#### Dia (Allah) berfirman, “Demikianlah, dahulu telah datang kepadamu ayat-ayat Kami, dan kamu mengabaikannya, jadi begitu (pula) pada hari ini kamu diabaikan. (QS. 20:126)
+
+#### وَكَذٰلِكَ نَجۡزِىۡ مَنۡ اَسۡرَفَ وَلَمۡ يُؤۡمِنۡۢ بِاٰيٰتِ رَبِّهٖ‌ؕ وَلَعَذَابُ الۡاٰخِرَةِ اَشَدُّ وَاَبۡقٰ
+#### Dan demikianlah Kami membalas orang yang melampaui batas dan tidak percaya kepada ayat-ayat Tuhannya. Sungguh, azab di akhirat itu lebih berat dan lebih kekal. (QS. 20:127)
+
+#### Baca artinya udah dapet maksud yang aku mau share belum ? Kita tau kan, kalo Allah itu segala-galanya. Nanti dihari akhir cuma Allah yang bisa nolong kita, Allah yang berkuasa, Allah lah rajanya, tapi gimana kalo ternyata Allah nglupain kita. Terus siapa yang bisa nolong kita ? Nggak ada, kecuali Allah. Kalo kita sadar tentang ini (alhamdulillah diberi kesadaran oleh Allah dan terus mintalah ke Allah biar Allah terus sadarkan kita, karna kita begitu bergantung sama hidayah Allah). Seharusnya kita berusaha biar nanti Allah tolong kita. Biar nanti di akhirat Allah nggak biarin kita susah dan bantuin kita. Bayangin aja ntar gimana nasibmu di akhirat kalo Allah lupain kamu. Jadi ayo mumpung sekarang masih didunia, masih hidup, masih dikasih sama Allah buat berubah, Ayo semangat berusaha jalani kehidupan ini sesuai petunjuk yang udah Allah kasih. Mudahan-mudahan Allah selalu menyayangi kita. Amin
