@@ -42,11 +42,10 @@
 30. Bila Kekayaan Bukan Kesuksesan dan Kemiskinan Bukan Kegagalan, Lalu Sukses dan Gagal itu Apa ?
 31. <a href="https://oak.my.id/dilupakan">Dilupakan</a>
 
-## Tentang Aku dan Kamu
+## Unkategories
 1. <a href="https://oak.my.id/I-like-green-and-why">I like green and why</a>
 2. Why I decided to purchase cheapest domain
-3. <a target="_blank" href="https://oak.my.id/azhari-dwiatmoko">Maafin aku</a>
-4. Belum Tentu Kamu Masih Hidup Besok
+3. Belum Tentu Kamu Masih Hidup Besok
 
 ## Bahasa Inggris
 1. Grammar itu Apa ?
