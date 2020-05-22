@@ -42,7 +42,7 @@
 30. Bila Kekayaan Bukan Kesuksesan dan Kemiskinan Bukan Kegagalan, Lalu Sukses dan Gagal itu Apa ?
 31. <a href="https://oak.my.id/dilupakan">Dilupakan</a>
 
-## Unkategories
+## Uncategories
 1. <a href="https://oak.my.id/I-like-green-and-why">I like green and why</a>
 2. Why I decided to purchase cheapest domain
 3. Belum Tentu Kamu Masih Hidup Besok
