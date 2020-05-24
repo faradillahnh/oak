@@ -1,4 +1,4 @@
-# Seluruh Kasih Sayang dan Cinta Itu Dari Allah
+# Allah yang Mencabut dan Memberi Cintai 
 
 ##### Belum ketemu kalimat yang bisa mendeskripsikan perasaanku sekarang, aku suka sama orang, orang itu suka sama aku, kita berdua saling suka, tapi aku ngrasa patah hati. 
 
