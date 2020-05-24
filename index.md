@@ -41,7 +41,7 @@
 29. Kata Allah, Bila Kamu Sedih
 30. Bila Kekayaan Bukan Kesuksesan dan Kemiskinan Bukan Kegagalan, Lalu Sukses dan Gagal itu Apa ?
 31. <a href="https://oak.my.id/dilupakan">Dilupakan</a>
-32. <a href="https://oak.my.id/seluruh-kasih-sayang-dan-cinta-itu-dari-allah">Seluruh Kasih Sayang dan Cinta Itu Dari Allah</a>
+32. <a href="https://oak.my.id/Seluruh-kasih-sayang-dan-cinta-itu-dari-allah">Seluruh Kasih Sayang dan Cinta Itu Dari Allah</a>
 
 ## Uncategories
 1. <a href="https://oak.my.id/I-like-green-and-why">I like green and why</a>
